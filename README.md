@@ -51,4 +51,4 @@ When I’m not busy wrestling with bugs at 2 AM, you’ll probably find me binge
 ---
 
 Thanks for dropping by!  
-If you’ve got cool ideas, memes, or just want to talk tech (or movies), hit me up. Let’s build (or break) something awesome together. 🚀✨
+If you’ve got cool ideas, memes, or just want to talk tech (or movies), hit me up. Let’s build (or break) something awesome together. 🚀
